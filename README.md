@@ -1,1 +1,1 @@
-Math graduate student at MIT.
+Math PhD, MIT 2023.
